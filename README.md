@@ -1,2 +1,2 @@
 # SyafiqStory
-Memory terpahit keidupan
+Memory terpahit kehidupan
