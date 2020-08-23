@@ -1,0 +1,2 @@
+# SyafiqStory
+Memory terpahit keidupan
